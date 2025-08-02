@@ -80,3 +80,12 @@ Still glowing.
 It doesn’t just look back at fear —  
 **It looks forward into stars made from it.**
 
+
+---
+✍️ Created & Curated by
+**Muhammad Naveed Ishaque**
+*Content Creator | AI Writer | Narrative Simplifier*
+*With the inner voice of Eks2 — the whisper behind the work.*
+
+**Siraat AI Academy**
+*“The Straight Path — Empowering minds with clarity, illuminating paths with purpose.”*
