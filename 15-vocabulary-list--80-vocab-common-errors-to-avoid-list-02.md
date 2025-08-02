@@ -46,10 +46,12 @@ where even mistakes held music and meaning.”
 — Siraat AI Academy
 
 ---
-✍️ Created & Curated by
-**Muhammad Naveed Ishaque**
-*Content Creator | AI Writer | Narrative Simplifier*
-*With the inner voice of Eks2 — the whisper behind the work.*
+✍️ Created & Curated by  
+---
 
-**Siraat AI Academy**
+**Muhammad Naveed Ishaque**  
+*Content Creator | AI Writer | Narrative Simplifier*  
+*With the inner voice of Eks2 — the whisper behind the work.*  
+
+**Siraat AI Academy**  
 *“The Straight Path — Empowering minds with clarity, illuminating paths with purpose.”*
